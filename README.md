@@ -1,4 +1,5 @@
-# Faisal Al-Humaimidi
+# Faisal Al-Humaimidi (a Cool Dude)
+<br>
 
 ## Admit it, you came here after searching the name of my resume!!
 
@@ -6,15 +7,17 @@
 
 #### Furthermore, why are you still reading?? it's cuz it's an awesome repo, right??
 
-##### A question tho, why is the alphabet is organized in this order??
+##### I'm just wasting a line here................and some of ur time too :laughing:!!
 
 ###### That's a tru dedication m8. Continuing to read this repo while the font is getting smaller and smaller.
 
-###### Opps...font can't get smaller and smaller, what a sham!!
+###### Opps...font can't get more smaller than this, what a sham!!
 
 ###### Still, you are an awesome person. Tho, u gotta admit, u r still in my repo!!
 
 ###### Facts time!!!
+
+###### Ehm...why is the alphabet is organized in this order??
 
 ###### Do u know u share as much as 50% of ur DNA as banana. No wonder Minions love us.
 
