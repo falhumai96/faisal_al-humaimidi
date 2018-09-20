@@ -24,3 +24,5 @@
 ###### Since u like banana, here's another fact: A strawberry isn't a berry but a banana is...whoo!!
 
 ###### One last fact, ur brain led u to read those facts, which was a result of other things u did in ur life, and which all were calculated to fire/block the right nerves to continue reading this fact too...let that sink in.
+
+###### Btw, checkout my other open source pet projects at: https://github.com/falhumai96.
